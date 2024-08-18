@@ -1,0 +1,2 @@
+# Newbie
+Newbie but diligent
